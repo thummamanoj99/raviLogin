@@ -3,7 +3,3 @@ hello
 my 
 new 
 vljhvh
-
-kbcjkKGVKL
-hah
-ndndndnd
